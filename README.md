@@ -1,2 +1,2 @@
-# my page is about shiba
-### Thx for waching
+# my page is about shiba inu
+### Thx for watching
